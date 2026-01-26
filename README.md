@@ -1,0 +1,1 @@
+This repository showcases my practical experience in digital marketing, social media management, content creation, and graphic design. It highlights real-world work delivered for multiple brands, focusing on visual consistency, engagement-driven content, and structured planning.
